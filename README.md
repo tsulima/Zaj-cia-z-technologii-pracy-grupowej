@@ -1,1 +1,1 @@
-# Zaj-cia-z-technologii-pracy-grupowej
+# Zajecia-z-technologii-pracy-grupowej
